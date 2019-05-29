@@ -12,6 +12,6 @@
      
 联系方式：IndieGame2019@outlook.com
 ---
-![](https://github.com/CasualPlay2019/xbw/blob/master/picture/account.png)  
+![](https://github.com/CasualPlay2019/xbw/blob/master/picture/account2.png)  
 ![](https://github.com/CasualPlay2019/xbw/blob/master/picture/%E9%AD%94%E5%8A%9B%E8%BD%AC%E5%9C%86%E5%9C%88.png)
 
